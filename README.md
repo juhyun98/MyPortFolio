@@ -1,1 +1,1 @@
-https://juhyun98.github.io/MyPortfolio/
+https://juhyun98.github.io/MyPortFolio/
